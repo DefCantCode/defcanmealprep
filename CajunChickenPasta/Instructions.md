@@ -1,0 +1,18 @@
+[Cajun Chicken Pasta](https://www.youtube.com/watch?v=_2rH8musRp4&t=1s)
+- 1 1/2 Tbsp (30ml) - Olive Oil 
+- 800g (1.7lbs) - Chicken Thigh, Boneless & - Skinless 
+- 1 1/2 tsp (3.5g) - Onion Powder 
+- 1 1/2 tsp (3.5g) - Garlic Powder 
+- 1 1/2 tsp (2.5g) - Dried Oregano 
+- 1 1/2 tsp (2.5g) - Dried Thyme 
+- 1/2 tsp (1g) - Red Chilli Powder
+- 2 Tbsp (10g) - Smoked Paprika 
+- 1 - Brown (Yellow) Onion, Diced 
+- 5 - Garlic Cloves, Minced 
+- 750ml (750g) - Chicken Stock
+- 1 1/2 Cans (600g) - Diced or Crushed -Tomatoes 
+- 200ml (220g) - Thickened Cream 
+- 600g (1.3lbs) - Penne
+-Seasoning To Taste 
+- Parmesan Cheese To Serve 
+- Flat Leaf Parsley (Optional)

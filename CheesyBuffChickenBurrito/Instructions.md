@@ -1,0 +1,20 @@
+[Cheesy Buffalo Chicken Burritos](https://www.instagram.com/reel/DI_Oh-4zTRo/?igsh=Mjg3ejJlMGNrc2x1) 
+- Diced Chicken Breast
+- 1 Tsp Salt
+- 1.5 Tsp onion & Garlic Powder
+- 1/2 Tsp Black Pepper
+- 1/2 Tsp Chili Powder
+- 2 Tsp Smoked Paprika
+- oil to pan medium high heat
+- Cook 4 minutes each side
+- Set aside add diced Garlic
+- 200ml Buffalo Sauce
+- 150g Light Cream Cheese
+- 1Tsp Ranch Seasoning
+- Lower heat add 40g Honey
+- Combined sauce and chicken
+- 100g light Mozzarella
+- 15g Spring Onion
+- 10g Chives
+- wrap with 25g Cheddar Cheese and Chives
+- toast

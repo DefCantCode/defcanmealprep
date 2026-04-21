@@ -1,0 +1,18 @@
+[Cheeseburger Skillets](https://www.youtube.com/watch?v=gjJ99pmiM1o)
+- 3 medium russet potatoes (cut to pieces)
+- 1tbsp oil
+-  1tbsp salt and pepper
+- potatoes on oven pan spaced (425F 10-12 mins)
+- 1  onion
+- 1 bunch of kale leaves (into small pieces)
+- dice 2 pickles medium dice
+- flip potatoes (8-10 mins)
+- 1tbsp oil with 2 pounds of beef (let sit before separating skillet medium high heat)
+- add salt and pepper
+- break and flip
+- separate in the middle once almost done to add onions
+- add salt minute
+- add chop kale
+- 1 tbsp of garlic powder
+- add potatoes  and mix
+- add 10g of cheese and pickle to each container

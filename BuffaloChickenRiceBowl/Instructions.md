@@ -1,0 +1,12 @@
+[Buffalo Chicken Rice Bowl](https://www.youtube.com/watch?v=5qylcQJ03AA&t=33s):
+- 4 lbs (1816 g) boneless skinless chicken thighs
+- 2 tbsp (16 g) chili powder
+- 4 tsp (12 g) salt
+- 2 tsp (6 g) pepper
+- 6 cups (900 g) cooked rice
+- 4 medium (800 g) zucchini
+- 16 oz (454 g) mushrooms
+- 1 medium (200 g) onion
+- 1 cup (112 g) cheddar cheese shredded
+- 4 tbsp (60 g) olive oil
+- 8 tbsp (120 g) buffalo sauce

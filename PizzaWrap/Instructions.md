@@ -1,0 +1,14 @@
+[pizza wraps](https://www.instagram.com/reel/DAdSwumy4Wt/?igsh=MWs2d2FmbzNwN2loZw==)
+- 200g thinly sliced pepperoni
+- ground beef 1.1kg
+- 1 Tsp salt
+- 1tsp onion powder
+- 1.5 tsp italian herb seasoning
+- 4 diced garlic cloves
+- 200g tomato paste
+- 80g softened light cream cheese
+- 100ml hot sauce
+- parlsey & 15g parm cheese
+- cooking oil
+- oregano & parm cheese
+- 375 bake 5 minutes
